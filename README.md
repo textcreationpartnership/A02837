@@ -35,20 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The equall vvayes of God tending to the rectifying of the crooked wayes of man. The passages whereof
+
+1. TO THE CHRISTIAN Reader the Authour wiſheth Grace, Peace, Salvation.
+
+1. The contents of the ſeverall CHAPTERS.
+
+1. Faults eſcaped in ſome copies.
+
 #####Body#####
 
-1. CHAP. I. In which foure generall poſitions are ſet downe, as the ground-worke of all: Concluſions deduced thence.
+1. THE EQVALL WAYES OF GOD: Tending to the rectifying of the crooked wayes of man.
 
-1. CHAP. II. Particular poſitions about Gods dealing with man, to bring him to ſalvation. Concluſions thence.
+    _ CHAP. I. In which foure generall poſitions are ſet downe, as the ground-worke of all: Concluſions deduced thence.
 
-1. CHAP. III. What courſe and order God hath preſcribed on mans part. Concluſions thereupon.
+    _ CHAP. II. Particular poſitions about Gods dealing with man, to bring him to ſalvation. Concluſions thence.
 
-1. CHAP. IIII. Our ſalvation is of the Lord: of his meere mercy: And by his powerfull working in us.
+    _ CHAP. III. What courſe and order God hath preſcribed on mans part. Concluſions thereupon.
 
-1. CHAP. 5.CHAP. V. Mans perdition is of himſelfe, and firſt by default of Rulers apoſtating from God: ſo as yet man dyes in and for his owne ſins. Concluſions thence.
+    _ CHAP. IIII. Our ſalvation is of the Lord: of his meere mercy: And by his powerfull working in us.
 
-1. CHAP. 6.CHAP. VI. Mans perdition is of himſelfe in the ſecond place by his own default: Where the Rulers and teachers do their duties. Concluſions thēce. Laſtly, concluſiōs from the former & this chapter jointly conſidered.
+    _ CHAP. 5.CHAP. V. Mans perdition is of himſelfe, and firſt by default of Rulers apoſtating from God: ſo as yet man dyes in and for his owne ſins. Concluſions thence.
+
+    _ CHAP. 6.CHAP. VI. Mans perdition is of himſelfe in the ſecond place by his own default: Where the Rulers and teachers do their duties. Concluſions thēce. Laſtly, concluſiōs from the former & this chapter jointly conſidered.
 
 **Types of content**
 
